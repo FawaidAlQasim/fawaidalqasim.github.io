@@ -1,8 +1,7 @@
-<p align="right">
 # فوائد علمية للشيخ د. عَبْدُ المُحْسِنِ بن مُحَمَّدِ القَاسِم وَفَّقَهُ اللّٰهُ
 #
+<p align="right">
 [تيلجرام](http://t.me/FawaidAlQasim)<br/>
 [فيسبوك](http://fb.me/FawaidAlQasim)<br/>
 [تويتر](http://twitter.com/FawaidAlQasim)<br/>
-[إنستجرام](http://instagram.com/FawaidAlQasim)<br/>
-</p>
+[إنستجرام](http://instagram.com/FawaidAlQasim)<br/></p>
