@@ -1,9 +1,6 @@
-# fawaidalqasim.github.io
-#
-/**فوائد علمية للشيخ د. عَبْدُ المُحْسِنِ بن مُحَمَّدِ القَاسِم وَفَّقَهُ اللّٰهُ**
-http://t.me/FawaidAlQasim
+# فوائد علمية للشيخ د. عَبْدُ المُحْسِنِ بن مُحَمَّدِ القَاسِم وَفَّقَهُ اللّٰهُ
+**fawaidalqasim.github.io**
+[http://t.me/FawaidAlQasim](تيليجرام)
 http://fb.me/FawaidAlQasim
 http://twitter.com/FawaidAlQasim
 http://instagram.com/FawaidAlQasim
-/[http://t.me/FawaidAlQasim](http://t.me/FawaidAlQasim)
-hyperlink
